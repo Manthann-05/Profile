@@ -37,7 +37,7 @@
 
 ### 📫 Let's Connect!
 - 📧 Email: kadumanthan05@gmail.com
-- 💼 LinkedIn: [linkedin.com/in/my-profile](www.linkedin.com/in/manthankadu0506)
+- 💼 LinkedIn: [linkedin.com/in/my-profile]([www.linkedin.com/in/manthankadu0506](https://www.linkedin.com/in/manthankadu0506?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B5u0Ktq8bTGaAJFWzYaVO9Q%3D%3D))
 
 ---
 
